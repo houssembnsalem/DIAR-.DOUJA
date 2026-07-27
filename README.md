@@ -1,1 +1,1 @@
-# DIAR-.DOUJA
+# DIAR-DOUJA
